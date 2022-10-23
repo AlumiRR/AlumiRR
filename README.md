@@ -1,6 +1,6 @@
 I am a stupid newbie in the giant world of the IT.
 
-IT student, indie games and mod enjoyer.
+IT student, indie games and mods enjoyer.
 
 A proud example of the people of the great bees.
 
